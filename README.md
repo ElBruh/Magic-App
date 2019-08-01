@@ -7,4 +7,9 @@ Idea I had where users can create "magic cards" and share them, the wackiest one
 Screenshots:
 
 
-[Imgur Album](https://imgur.com/gallery/39Lgm2y)
+![](https://i.imgur.com/GS2ABX9.jpg)
+![](https://i.imgur.com/KcVwEUi.jpg)
+![](https://i.imgur.com/mxiKGjI.jpg)
+![](https://i.imgur.com/qbJv7Q3.jpg)
+![](https://i.imgur.com/KfOZpJh.jpg)
+![](https://i.imgur.com/guVv4Td.jpg)
